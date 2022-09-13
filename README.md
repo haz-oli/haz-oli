@@ -1,4 +1,4 @@
-- Hazel Oliveri (she/they)
+- Hazel Oliveri (she/her)
 - IT and Engineering Systems Technician
 - Briggs of Burton, Inc.
 - t: +1 585 426 2460 c: +1 585 410 7494
